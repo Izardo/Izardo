@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Izardo
-- 👀 I’m interested in culture, humans, nature, eating, puppies(eating AND puppies), occupying mars, Elon Musk, log fires, exploration of the mind and beyond! 
+- 👀 I’m interested in culture, humans, nature, data, logfires, exploration of the mind and beyond! 
 - :woman_student: Graduate of Arts with Human Rights Law, Philosophy and Spanish @ NUIG
 - 🌱 I’m currently learning Data Analytics @ GMIT
 - 💞️ I’m looking to collaborate on many things!
